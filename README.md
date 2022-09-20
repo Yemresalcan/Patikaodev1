@@ -1,2 +1,2 @@
 # Patikaodev1
-![image](https://user-images.githubusercontent.com/58724276/191347176-4e81d380-e813-4ba4-ac62-da66191b7dc3.png)
+![image](https://user-images.githubusercontent.com/58724276/191350731-0956f2ab-c528-4295-b94c-b5fdecf4f9e1.png)
